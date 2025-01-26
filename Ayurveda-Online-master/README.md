@@ -13,6 +13,6 @@ Jayrajsinh Barad
 
 
 <h2>LIVE LINK-: </h2>
-https://rishabh7777.github.io/Ayurveda-Online/
+    https://jayrajsinh45.github.io/Ayurvedic-Gujarat/Ayurveda-Online-master/
 
 
